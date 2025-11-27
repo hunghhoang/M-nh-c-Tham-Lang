@@ -4,6 +4,8 @@
 
 <h2 dir="ltr" style="text-align:justify"><strong>Mệnh có Tham Lang là gì?</strong></h2>
 
+<p dir="ltr" style="text-align:center"><img alt="Tham Lang Cung Mệnh" src="https://tracuulasotuvi.com/wp-content/uploads/2024/03/Tham-Lang-Cung-Menh.jpg" /></p>
+
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:10pt">Trong tử vi, cung Mệnh là cung quan trọng nhất trong lá số, đại diện cho tính cách, bản chất con người và định hướng của cuộc đời. Khi cung mệnh có Tham Lang, điều này cho thấy chủ mệnh mang trong mình sự mạnh mẽ, quyết đoán và luôn khát khao chinh phục những thử thách. Sao Tham Lang là một trong 14 chính tinh thuộc nhóm Bắc Đẩu tinh, nổi bật với tính chất ham muốn, tham vọng và luôn khao khát đổi mới. Đây là một sao thuộc hành Thủy, mang đến sự linh hoạt, khéo léo nhưng cũng đầy biến động.</span></p>
 
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:10pt">Người có cung mệnh có sao Tham Lang thường không chịu bó buộc trong bất kỳ khuôn khổ nào. Họ yêu thích sự tự do, khám phá và luôn tìm kiếm những cơ hội mới để khẳng định bản thân. Bản chất mạnh mẽ của sao Tham Lang khiến chủ mệnh dễ dàng tỏa sáng trong các công việc đòi hỏi sự linh hoạt và sự dấn thân. Tuy nhiên, vì bản tính đam mê và tham vọng cao, người có cung Mệnh có&nbsp;</span><strong><a class="in-cell-link" href="https://tracuulasotuvi.com/tham-lang.html" target="_blank">Tham Lang hãm địa</a></strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:10pt"> dễ bị cuốn vào những cám dỗ của vật chất, quyền lực hoặc những thú vui không lành mạnh.</span></p>
@@ -23,10 +25,12 @@
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:10pt">Tuy nhiên, chính vì ham muốn thành công quá lớn, họ dễ rơi vào vòng xoáy của sự tham lam và lợi dụng. Nếu không biết kiềm chế, họ có thể chọn những con đường tắt hoặc phương pháp không chính đáng để đạt được mục tiêu. Điều này dễ dẫn đến những hệ lụy xấu trong tương lai, đặc biệt khi họ quá tin tưởng vào khả năng của bản thân mà bỏ qua những cảnh báo từ người xung quanh.</span></p>
 
 <blockquote>
-<p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:10pt">&gt;&gt;&gt;&nbsp;</span><strong><a href="https://my.omsystem.com/members/tralasotuvi">Phúc Đức có Tham Lang</a>: phúc phận của bạn ẩn chứa điều gì và làm sao để hưởng trọn vẹn? Truy cập để tìm hiểu ngay!</strong></p>
+<p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:montserrat,sans-serif; font-size:10pt">&gt;&gt;&gt;&nbsp;</span><strong><a href="https://www.roshd.ir/Activity-Feed/My-Profile/UserId/215755">Phúc Đức có Tham Lang</a>: phúc phận của bạn ẩn chứa điều gì và làm sao để hưởng trọn vẹn? Truy cập để tìm hiểu ngay!</strong></p>
 </blockquote>
 
 <h2 dir="ltr" style="text-align:justify"><strong>Mệnh có Tham Lang theo vị trí đắc địa và hãm địa</strong></h2>
+
+<p dir="ltr" style="text-align:center"><img alt="Sao Tham Lang là người khéo léo trong giao tiếp xã hội" src="https://tracuulasotuvi.com/wp-content/uploads/2024/03/Sao-Tham-Lang-la-nguoi-kheo-leo-trong-giao-tiep-xa-hoi.jpg" /></p>
 
 <h3 dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(67, 67, 67); font-family:montserrat,sans-serif; font-size:14pt">Mệnh có Tham Lang đắc địa (Tý, Ngọ, Thìn, Tuất)</span></h3>
 
